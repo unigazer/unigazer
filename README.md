@@ -8,5 +8,6 @@
 - Software Developer
 - Passionate about technology since I was a kid
 - Can't stand human trash in nature
+- Star gazer
 - Love cats
 - Metalhead
